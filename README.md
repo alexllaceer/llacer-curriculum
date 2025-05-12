@@ -28,7 +28,7 @@ Soc una persona treballadora, seriosa i amable. Tinc vehicle propi per a despla�
 - Català: Natiu  
 - Castellà: Natiu  
 - Anglès: Nivell mig/alt  
-  - Títol **First Certificate** (FCE)
+- Títol **First Certificate** (FCE)
 
 ---
 
